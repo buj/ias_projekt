@@ -2,4 +2,4 @@
 
 Link na dotazník: [https://forms.gle/J5ByDtZCzs7nnAPe9](https://forms.gle/J5ByDtZCzs7nnAPe9)
 
-Tu sa časom (odhadovane do konca mája) objavia výsledky/report.
+Tu sa časom (odhadovane do 5.6.) objavia výsledky/report.
